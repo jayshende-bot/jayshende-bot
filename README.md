@@ -101,7 +101,7 @@
 
 ## 📫 Contact Me
 
-- 📧 Email: **shendejay01@@gmail.com**  
+- 📧 Email: **shendejay01@gmail.com**  
 - 💼 LinkedIn: **https://www.linkedin.com/in/jayshende/**  
 
 ---
